@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JunkynioyPH
 - 👀 I’m interested in anime, gaming, programming
-- 🌱 I’m moving towards to learning Games Tech and Japanese Uni Course
+- 🌱 I’m moving towards freedom?
 - 💞️ I’m looking to collaborate on ...
 
 <!---
